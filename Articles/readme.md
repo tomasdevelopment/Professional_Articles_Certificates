@@ -1,1 +1,1 @@
-Find a list of some of the articles I've published through school or in different forums as marcel the hive.
+Find a list of some of the articles I've published through school, Linked in or in different corp forums as  the hive in Publicis Groupe.
